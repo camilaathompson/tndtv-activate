@@ -1,9 +1,9 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://tv.activation-key.net/">
+
 How to Activate TND TV? 📺
 ============================================
-
-.. toctree::
-   :maxdepth: 2
-   :caption: Contents:
 
 In a world where streaming services have taken over traditional cable TV, TND TV has quickly gained popularity among viewers who want a seamless, high-quality entertainment experience. From blockbuster movies and trending series to live events and news, TND TV offers something for everyone. However, before you can start binge-watching your favorite content, you’ll need to know how to tnd tv activate your device properly.
 
